@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @The-Invent0r
 - 👀 I’m interested in Electronics, computers, software, physics, and tech.
-- 🌱 I’m currently learning anything cool invoving technology (software and hardware)
+- 🌱 I’m currently learning anything cool involving technology (software and hardware), and physics.
 - 📫 You can reach me on twitter: https://twitter.com/keepm0ving4ward
       or on reddit: https://www.reddit.com/user/The_Invent0r/
 
